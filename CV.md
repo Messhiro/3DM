@@ -52,21 +52,7 @@ Additionally, my professional knowledge of computer science, which is almost of 
 
 It is worth mentioning that when I was at my college, I had also done some work related to NLP(natural language processing). I once encoded the Chinese characters pronunciation into electrical signals, so as to conduct it through skins of the blind. Thus they can "listen" to the voices by skins. Otherwise, I also encoded the sino-tibetan languages.
 
-Here are some poems I wrote before for reference.
 
-钗头凤·离怀
-
-暝山沉，晚云朦，万里箫鼓今何存？途屹嶝，失鸾凤，盍仿刘伶，醉眠金樽。吨、吨、吨。
-
-意难痕，望征尘，清江吴语便风闻。凌云程，纵鲲鹏，到头来时，再话诗文。仍？仍。仍！
-
-丑奴儿·中秋
-
-风急雨骤藏泠月，独自凭栏。独自凭栏，却舍堂前一片欢。    
-
-罗衾只有残灯拭，月落东山。月落东山，也难如钩也难圆。
-
-我希望的职位是英-中/日-中翻译，目前时间较为充裕（也出不了门），恳请考虑。
 
 では、お返信をお待ちしております。
 
